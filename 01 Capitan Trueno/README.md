@@ -1,0 +1,1 @@
+Este sitio web dedicado al Capitán Trueno se encuentra actualmente en construcción. Estamos preparando un espacio único para recopilar las mejores historias y aventuras de este icónico personaje del cómic español. Te agradecemos la paciencia y te invitamos a volver muy pronto para descubrir todo el contenido que tenemos preparado.
